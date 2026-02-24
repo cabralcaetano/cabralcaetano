@@ -36,4 +36,4 @@ I enjoy learning across different areas of technology and understanding how syst
 - English (technical reading and listening, improving speaking)
 
 ## 📫 Contact
-- LinkedIn: (add later)
+- LinkedIn:
